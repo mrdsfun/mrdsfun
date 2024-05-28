@@ -8,7 +8,7 @@
 
 每日大赛永久地址（需科学⬆️网工具）https://mrds.fun/
 
-每日大赛官方QQ群：https://mrds11.fun/?path=/qun.html
+每日大赛官方QQ群：https://mrds12.fun/?path=/qun.html
 
 每日大赛TG官方群：https://t.me/mrds_fun1
 
