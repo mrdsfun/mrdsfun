@@ -1,10 +1,10 @@
-每日大赛最新地址👋（最新更新时间2024-05-26）
+每日大赛最新地址👋（最新更新时间2024-05-28）
 
-每日大赛最新官网：https://mrds11.fun
+每日大赛最新官网：https://mrds12.fun
 
-每日大赛备用线路1 https://mrds10.fun/
+每日大赛备用线路1 https://mrds11.fun/
 
-每日大赛备用线路2 https://mrds9.fun/
+每日大赛备用线路2 https://mrds10.fun/
 
 每日大赛永久地址（需科学⬆️网工具）https://mrds.fun/
 
