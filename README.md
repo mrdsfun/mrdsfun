@@ -12,7 +12,7 @@
 
 每日大赛TG官方群：https://t.me/mrds_fun1
 
-失联获取最新地址方法1：https://github.com/mrds.fun
+失联获取最新地址方法1：https://github.com/mrdsfun
 
 失联获取最新地址方法2：发任意内容到邮箱：mrds.club@gmail.com
 网址打不开？？？
