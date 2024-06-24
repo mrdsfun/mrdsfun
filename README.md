@@ -1,17 +1,17 @@
-每日大赛最新地址👋（最新更新时间2024-06-14）
+每日大赛最新地址👋（最新更新时间2024-06-24）
 
 曹县翰林府火爆大瓜！女销售买房送逼！点击立即吃瓜
 https://bqhlza.com/?path=/archives/51142/
 
-每日大赛最新官网：https://mrds14.fun
+每日大赛最新官网：https://mrds15.fun
 
-每日大赛备用线路1 https://mrds13.fun
+每日大赛备用线路1 https://mrds14.fun
 
-每日大赛备用线路2 https://mrds12.fun
+每日大赛备用线路2 https://mrds13.fun
 
 每日大赛永久地址（需科学⬆️网工具）https://mrds.fun
 
-每日大赛官方QQ群：https://mrds14.fun/?path=/qun.html
+每日大赛官方QQ群：https://mrds15.fun/?path=/qun.html
 
 每日大赛TG官方群：https://t.me/mrds_fun1
 
